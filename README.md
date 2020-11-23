@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I write sci-fi stories :rocket: for adults and kids of all ages, and work as a software engineer.
+
+Get two free short stories when you signup for my email newsletter at https://www.matthewrasnake.com/signup!
+
+Currently, I'm editing my upcoming Science-Fiction novel *Rogue Planet*, and learning Android development. 
